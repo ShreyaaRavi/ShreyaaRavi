@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **shreyaravikumar11@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/129Di53Pn3Uec0R-k1IpB2vEo6MSqoOOY/view?usp=drive_link](https://drive.google.com/file/d/129Di53Pn3Uec0R-k1IpB2vEo6MSqoOOY/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1w7XJXhErGDSmonKY5r-mMRjvPtOVOJ3S/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
